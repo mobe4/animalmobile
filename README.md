@@ -1,0 +1,6 @@
+![Screenshot 2024-05-14 at 2 24 14 PM](https://github.com/mobe4/animalmobile/assets/88381255/3adf459e-c0c9-4910-a42d-e6cf17f38d5d)
+![Screenshot 2024-05-14 at 2 30 00 PM](https://github.com/mobe4/animalmobile/assets/88381255/48bd0e30-3f24-45f7-9e82-751e91b13439)
+![Screenshot 2024-05-14 at 2 25 38 PM](https://github.com/mobe4/animalmobile/assets/88381255/b7246a5b-f309-4ae2-9744-12cd43409f2b)
+![Screenshot 2024-05-14 at 2 30 18 PM](https://github.com/mobe4/animalmobile/assets/88381255/565820a9-66eb-4fb3-bc31-381d2715bbbe)
+![Screenshot 2024-05-14 at 2 24 22 PM](https://github.com/mobe4/animalmobile/assets/88381255/1f9cbdff-49fa-4ff6-b497-12141aed1e93)
+![Screenshot 2024-05-14 at 2 25 29 PM](https://github.com/mobe4/animalmobile/assets/88381255/75dbfd5b-16f8-46ac-9354-6687420be5ab)
